@@ -1,2 +1,2 @@
 # 4u-carwash-legal
-4U Carwash App Privacy Policy.
+4U Carwash App Privacy Policy and Support.
